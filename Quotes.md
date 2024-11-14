@@ -1,0 +1,8 @@
+- if we build the prisons ourselves we can tear them down ourselves
+- a ship cannot reach two ports at once, it must go port to port, doing things each day, every day, up until the end of its life
+- the world of man is one of vision and imagination, as man is so he sees
+- some people will read war and peace and think its a simple love story, others can read the back of a bubblegum wrapper and decipher the secrets of the universe
+- your environment doesn't shape you, it reveals you to yourself
+- we always ask the question of what does
+- for every minute spent in organizing, and hour is earned -- Benjamin Franklin
+- appearances to the mind are of four kinds. Things either are what they appear to be; or they neither are, nor appear to be; or they are, and do not appear to be; or they are not, and yet appear to be. Rightly to aim in all these cases is the wise man's task -- Epictetus

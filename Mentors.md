@@ -1,0 +1,18 @@
+- Marcus Aurelius
+- Epictetus
+- Seneca the Younger
+- Machiavelli
+- Baltasar Gracian
+- Aristotle
+- Earl Nightingale
+- Jim Rohn
+- James Allen
+- Brett Victor
+- Alan Kay
+- Joseph son of Jacob
+- King David of Bethlehem
+- Christ
+- St. Peter
+- St. Justin Martyr
+- St. Irenaus
+- St. John Bosco

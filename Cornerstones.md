@@ -1,0 +1,10 @@
+- High level classical and modern literacy and grammar, lots of time spent exercising it
+- Musical literacy
+- Breadth first over depth first approach to interests and information
+- Finding the answers myself, inspecting the world to see what it offered me
+- Thinking often about the answers to questions the world could not provide responses too
+- Creative writing, art and design
+- A desire to do everything in my own fashion while harvesting all the advantages and beauty of what came before
+- A persistent love of others and a gentle disposition
+- A passion for history and craftsmanship
+- Not wanting to owe anyone anything or be at anyone's mercy
