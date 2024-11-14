@@ -1,4 +1,0 @@
-- add all the zettelkasten videos to the resources index
-- watch through each and write notes on them
-- add links to [[r.sk-zpb]], [[r.kk-cpama]], and [[r.ad-gtd]]
-- 
