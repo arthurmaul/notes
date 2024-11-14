@@ -3,3 +3,4 @@
 Purpose: As an app and embedded systems developer, I want to learn the C programming language to a usable level of competency so that I can create efficient portable native applications and embedded software.
 
 ---
+
